@@ -1,4 +1,3 @@
 @Sailius
 
-How to reach me:
-Email: lwhiteevans@gmail.com
+How to reach me / (Email: lwhiteevans@gmail.com).
